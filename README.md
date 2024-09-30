@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Matej Gornál
 2.
 3.
-4.
+4. Klara Senderakova
