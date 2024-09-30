@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1. Matej Gornál
 2. Viktoria Terebova
-3.
+3. Lukáš Hajdúch
 4. Klara Senderakova
