@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Matej Gornál
-2.
+2. Viktoria Terebova
 3.
 4. Klara Senderakova
